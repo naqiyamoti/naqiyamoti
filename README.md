@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Hey! I'm Naqiya and I'm a Data Analyst at Working Families Party. 
+
+ 😄 Pronouns: she/hers
